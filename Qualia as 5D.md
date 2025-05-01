@@ -1,0 +1,3 @@
+Reincarnation. Out-of-body memory. Energies. grid of values (like image with pixels), bounded version is personal "qualia" segment, but also spider has 8 eyes (360 degree) as opposed to our 2 eyes, so the qualia boundary extends. But at the same time, people with blindsight can "sense" things through intuition, somehow. As if they can sense a qualia pertrubations nearby, outside it's direct boundary. If hemispherectomy produces... two integrated parts of qualia? Why does one control the body? Whales who sleep, something have two qualia-bounded instances?
+
+Cell positioning and out-of-body memory. Are things that are like primal forms.
