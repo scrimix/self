@@ -1,3 +1,5 @@
+Author: scrimix (Rihard Grickus)
+
 ----
 ### Titles
 
