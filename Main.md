@@ -11,6 +11,8 @@ Qualia: Imaginary 5th dimension
 God: Summit of Values
 Ein Sof: Infinite Light
 
+"Know thyself" - Apollo.
+
 ----
 ### Fields and questions
 
