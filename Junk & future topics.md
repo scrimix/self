@@ -1,14 +1,4 @@
 
-Collection of related topics and scientific fields.
-
-Major fields:
-Philosophy, psychology, cognitive science, neuroscience, mythology, symbolism, math, computer science, AI, physics, metaphysics, cosmology, religion, spirituality, ethics, epistemology, ontology, complexity theory, evolutionary biology, art & aesthetics.
-
-Major questions:
-Origin of Life, Meaning of Life, Consciousness and Qualia, Free Will, Ship of Theseus, Existence of God, Value Hierarchy, Reincarnation, Synchronicity, Origin of the Universe, Gap between Quantum and Newtonian physics, Chaos and Complexity.
-
-------
-
 Trying to describe the model of the Self.
 Identity - through line, ship of Theseus, objects & relations, hyper-objects;
 Connection - community, collective unconscious, culture, story;
@@ -206,3 +196,27 @@ Yin and Yang. Tension. Spiral. {-1,0,+1} grid.
 Spiders!!!! 8 eyes!!! 360 degree qualia
 
 For some reason there exists Holy Spirit which leads to God? And it's consistent?
+
+I've had a dream of nuclear laser weapons.
+I worry that this kind of knowledge might bring very destructive weapons to life.
+But I have faith that in the end it will bring good.
+Saying otherwise would undermine the whole universe.
+
+
+# Apollonian and Dionysian
+**Dionysus** *chaos*
+Apollo (sun, order)
+Delos (place)
+# _Thyrsus_
+
+So. Apollo - is a god of order, sun, aim (inward spiral) and archery, poems, health, plague, prophecy, averting sin (evil) like a snake, seven-stringed lyre. By all accounts it seems like I follow the spirit of Apollo. (given that I also play Chopin on the piano). He is also a snake-slayer.
+
+As Above, So Below.
+Same patterns happen on micro-cosm and marco-cosm.
+Most people when they think about this, they imagine atoms and universe.
+But this actually applies to people and societies as well.
+That's why knowing Self produces such rich depth of meaning.
+
+Bloodborne cosm!!!!!
+
+Recursion. A function calling itself.
